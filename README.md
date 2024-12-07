@@ -1,1 +1,0 @@
-# inpian-dimasa-depan
